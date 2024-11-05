@@ -1,1 +1,1 @@
-![GMRT's LOGO](https://i.imgur.com/AUuquqP.png)
+![GMRT's LOGO](https://i.imgur.com/13yLdN9.png)
